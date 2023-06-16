@@ -12,8 +12,10 @@
 
 可以直接从网盘下载：
 ```
-链接：https://pan.quark.cn/s/690c704ce497
-提取码：HVcb
+[天涯神贴合集]
+https://www.aliyundrive.com/s/LvTzydhAPRR
+提取码: 45ev
+
 ```
 但是有些文件无法分享，原因未知。可以微信沟通获取。
 
